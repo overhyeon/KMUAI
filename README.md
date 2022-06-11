@@ -1,1 +1,0 @@
-Sang Hyeon Lee
